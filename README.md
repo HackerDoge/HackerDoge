@@ -1,4 +1,4 @@
 - 👋 Hello There.
-- 🔭 I’m currently Learning and exploring newer opportunities. 
-- 👯 I’m looking to collaborate on Projects and learning about newer technologies.        
+- 🔭 I’m currently Learning and exploring opportunities to work. 
+- 👯 I’m looking to collaborate on Projects and learning about new technologies.        
 - 📫 You Can reach me via @helloarijeet. 
