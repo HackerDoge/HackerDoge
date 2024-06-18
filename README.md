@@ -1,4 +1,4 @@
 - 👋 Hello I’m @Arijeet_Sarkar.
-- 🔭 I’m currently Learning and exploring opportunities to work. 
-- 👯 I’m looking to collaborate on Projects and learning about new technologies.        
+- 🔭 I’m currently Learning and exploring about new technolodgies. 
+- 👯 I’m looking to collaborate on Projects.        
 - 📫 You Can reach me via @helloarijeet. 
